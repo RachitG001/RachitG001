@@ -1,4 +1,7 @@
 ### Hi there 👋
+### Keep learning, keep hustling. There is always someone better than you !!!!
+
+<img src="https://media.giphy.com/media/WpIjh42KPontoNSF0J/giphy.gif" alt="not found">
 
 <!--
 **RachitG001/RachitG001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
