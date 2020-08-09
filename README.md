@@ -1,5 +1,5 @@
 ### Hi there 👋
-### Keep learning, keep hustling. There is always someone better than you !!!!
+### Keep learning, keep hustling !!!!
 
 <img src="https://media.giphy.com/media/WpIjh42KPontoNSF0J/giphy.gif" alt="not found">
 
